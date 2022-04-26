@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "ManlyMan, Theboythatcanflywithhishair, Big PP Gang"
+title: "ManlyMan, Theboythatcanflywithhishair"
 date: 2022-04-26
 ---
 
